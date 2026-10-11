@@ -1,0 +1,1 @@
+# bluemamba-solitaire-updates
